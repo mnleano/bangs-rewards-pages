@@ -1,3 +1,5 @@
+🌐 [English](README.md) | [한국어](README.ko.md)
+
 # Privacy Policy for Bangs Rewards
 
 At Bangs Rewards, we prioritize your privacy and are committed to protecting the personal information you share with us. This Privacy Policy outlines how we collect, use, manage, and protect your data in compliance with applicable laws and regulations in the Philippines.
