@@ -56,7 +56,7 @@ Requests can be sent to our designated Data Protection Officer (DPO) using the c
 For questions, concerns, or requests regarding your personal data, please contact us at:
 
 **Bangs Rewards Data Protection Officer**  
-Email: bangsprimesalon@bangs.com.ph
+Email: bangsprimesalon@bangs.com.ph  
 Phone: +63 917 633 4161
 
 ---
