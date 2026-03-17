@@ -1,3 +1,5 @@
+🌐 [English](README.md) | [한국어](README.ko.md)
+
 # Terms and Conditions for Bangs Rewards Application Membership
 
 The Terms and Conditions outlined below, established by Tony and Jackey Salon Corp. (hereafter referred to as "ABFG CORP"), serve as the foundation and guidelines governing the issuance and use of the Bangs Rewards Application. These Terms and Conditions define the rights and responsibilities of Bangs Rewards Members. By enrolling in the Bangs Rewards Application, members agree to comply with these Terms and Conditions, as well as any additional policies or guidelines outlined in the Tony & Jackey Salon Corp. Manual. Acceptance of these Membership Terms and Conditions is deemed automatic upon enrollment in the program.
